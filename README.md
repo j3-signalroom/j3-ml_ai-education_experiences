@@ -1,1 +1,1 @@
-# J3 ML/AI Experiences
+# J3 ML/AI Education Experiences
